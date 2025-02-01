@@ -2,8 +2,7 @@
 
 # Terms of service!
 
-## Our-Rules
-Rules For my discord Server
+# Our TOS
 
 ## 1. Prohibition of Selling Discord Accounts, Roblox accounts.
 Users are prohibited from sharing, distributing, or replicating any Accounts of roblox and discord.
