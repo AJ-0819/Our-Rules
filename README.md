@@ -1,3 +1,7 @@
+## AJ's Stocks
+
+## Terms of service!
+
 # Our-Rules
 Rules For my discord Server
 
