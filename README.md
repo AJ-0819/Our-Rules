@@ -8,7 +8,7 @@
 Users are prohibited from sharing, distributing, or replicating any Accounts of roblox and discord.
 
 ## 2. No Refunds
-All sales and transactions are final. We does not offer refunds under any circumstances, regardless of the reason.
+All sales and transactions are final. We does not offer refunds under any circumstances, Overall Depends of the reason.
 
 ## 3. No Account/Whitelist Transfers
 User accounts that try to sell, or trade accounts or try beaming or scamming will result in Hall of shame or a Ban of the discord server of the account.
